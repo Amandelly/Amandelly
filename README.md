@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Amandelly
 - 👀 I’m interested in providing  better communiction through skilled arrangement of words...
-- 🌱 I’m currently learning through personal experience of a path unknown to me yet
+- 🌱 I’m currently learning how the process of aging provides the wisdom and undrestanding by submitting to the flow of Life which is to me God 
 - 💞️ I’m looking to collaborate on methods for articulation and expression of raw data born in the mind of the thinker 
-- 📫 How to reach me;' inner-app paths of communication
+- 📫 How to reach me;' inner-app paths of communication. ebbnflowwego@gmail.com
 - 😄 Pronouns: she\her\hers
 -⚡ Fun fact: ...anyone can write poetry
 <!---
